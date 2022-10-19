@@ -1,3 +1,3 @@
-https://en.pronouns.page/@Trollface < prounoun's and more! :3
+I made this for fun, I honestly don't know what I'm doing
 
 
